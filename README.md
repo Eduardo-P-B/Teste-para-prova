@@ -1,0 +1,1 @@
+eu estou criando esse arquivo para tentar fazer tudo oq eu preciso
